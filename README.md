@@ -17,6 +17,6 @@
 
 👩🏻‍💻  **Sindhu Inti**
 
-## Show your 
+## Show
 
 Give a ⭐ to my project.
